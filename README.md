@@ -25,7 +25,7 @@ I am a passionate AI & ML Enthusiast, [a Curious Coder](https://www.codechef.com
 ## 🧡 More than Me & Myself:
 - 🚀 Apart from coding Entrepreneurship, Business and Finance fascinates me!
 - 💥 Always count me in for Food🍕, Sports🏎️, Movies 🎥, Fifa & Valorant 🎮, Memes,  Hodophile 📸.
-- ✨ Can't get over Leo Messi, FC Barcelona & Dua Lipa🎵.
+- ✨ Can't get over [Leo Messi](https://media.tenor.com/NaEXDzxTjZkAAAAM/messi-goat.gif), FC Barcelona & Dua Lipa🎵.
 - 📙 Check out my [Resume]
 - 👻 Fun-Fact: My Code works right on the first try😂
 - 🤫 Ssshhhh, I will be having my degree in Metallurgical Engineering😵
